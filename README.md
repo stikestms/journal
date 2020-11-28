@@ -1,0 +1,2 @@
+# journal
+membaca dengan seksama
